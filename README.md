@@ -1,24 +1,18 @@
-<p align="center">
-  <img src="https://i.postimg.cc/qM3pyz4M/pony-town-auxiliatricksint-trot-blinking-fixed-padded-2x-ezgif-com-crop(1).gif)">
-<img src="https://i.postimg.cc/pVhLP0hb/pony-town-solluxhalf-dead-trot-blinking-fixed-padded-2x-ezgif-com-crop.gif">
-<img src="https://i.postimg.cc/DfJw7CJm/pony-town-Callieu-trot-blinking-fixed-padded-2x-ezgif-com-crop.gif">
-<img src="https://i.postimg.cc/pVhLP0hX/pony-town-DAVEPETA-fly-blush-blinking-fixed-padded-2x-ezgif-com-crop.gif">
-<img src="https://i.postimg.cc/h4ztKCzX/pony-town-Meulin-trot-hearts-blinking-fixed-padded-toy446-2x-ezgif-com-crop.gif">
-<img src="https://i.postimg.cc/8PLWzkJV/pony-town-Eclectica-trot-blinking-fixed-padded-toy342-2x-ezgif-com-crop.gif">
-<img src="https://i.postimg.cc/kM6g7j64/pony-town-Scene-Sollux-trot-blinking-fixed-padded-ponyplush-2x-ezgif-com-crop.gif">
-<img src=https://i.postimg.cc/W12DpGc0/pony-town-horsegirl-offtab-trot-blinking-fixed-padded-2x-ezgif-com-crop.gif">
+![1000007144](https://github.com/user-attachments/assets/e6e200a9-02c9-41df-937d-4d07f1f5db1f)
+
 </p>
 <h4 align="center">
-✩‧₊˚─────⋆⋅☆⋅⋆─────˚₊‧✩
+
 </h4>
 <p align="center">
-hi im minto, i like mint green. B] <br>
-not a system. 20 years old. big into homestuck. im always roleplaying in-character, because its fun! <br>
-c+h & int welcome, pony name preferred. <br>  
-  ive collected a bunch of stickers now yippee!
+  𓈒⠀⠀𓏵    he/she/any  ノ  mlm/wlw   !    ꘓ
+hi! im Natalan, rex or henry, i like cake and sweet stuff <br>
+ 1/3 years old. into homestuck/forsaken/mm12 . im always afk or offtab or you can see me w my virtual family or friends like may/heaven/insom/ziloo or more <br>
+c+h & int freely I like meeting new colleagues ! <br>  
+  Now I have so many stickers ! 
 </p>
 <h4 align="center">
- ✩‧₊˚─────⋆⋅☆⋅⋆─────˚₊‧✩
+               ⌗   ﹐  ୨ৎ
 </h4>
 
 <p align="center">
@@ -29,12 +23,11 @@ c+h & int welcome, pony name preferred. <br>
 <a href="https://www.tumblr.com/aradidnt/765474656608272384/yesssssssssss?source=share"><img width="99" height="56" src="https://i.postimg.cc/C5DcyYgM/davesolkatstamp.jpg" hspace="1"></a>
 <img width="99" height="56" src="https://i.postimg.cc/13XkYQ1Y/1sth1syou.png" hspace="1">
 <img width="99" height="56" src="https://i.postimg.cc/T2qvK0cW/auspisticism.gif" hspace="1">
-<img width="99" height="56" src="https://i.postimg.cc/mg6sbryq/ilovemyqpp.png" hspace="1">
-<img width="99" height="56" src="https://i.postimg.cc/3wsQvbVH/queer.png" hspace="1">
+height="56" src="https://i.postimg.cc/3wsQvbVH/queer.png" hspace="1">
   <img width="99" height="56" src="https://i.postimg.cc/T1G8k5Tn/wishicouldteleport.jpg" hspace="1">
 <a href="https://homestuck.com/001901"><img width="99" height="56" src="https://i.postimg.cc/zGQ9scJz/homestucktrash.gif" hspace="1"></a>
   <br>
-  <img src="https://i.postimg.cc/br3zk91q/sylph_of_space_blinkie.gif" hspace="1">
+  <isrc="https://i.postimg.cc/br3zk91q/sylph_of_space_blinkie.gif" hspace="1">
   <a href="https://uquiz.com/quiz/SgJR0V/what-is-your-lunar-sway"><img src="https://i.postimg.cc/mkbLP5zp/prospitdreamer.gif" hspace="1"> </a>
   <img src="https://i.postimg.cc/tTGCjTXp/neurodivergent.gif" hspace="1">
   <img src="https://i.postimg.cc/RhMSWD6y/aromanticpride.gif" hspace="1">
@@ -47,7 +40,7 @@ c+h & int welcome, pony name preferred. <br>
     <img width="99" height="56" src="https://i.postimg.cc/wjrSCG6B/rad.gif" hspace="1">
 <img width="99" height="56" src="https://i.postimg.cc/pdngRJTW/gotyuri.png" hspace="1">
 <img width="99" height="56" src="https://i.postimg.cc/xdJSqSsY/arabotrage.webp" hspace="1">
-  <br>
+  
   <img src="https://i.postimg.cc/63x5X39K/awoooo.gif" hspace="1">
   <img widrth="150" height="20" src="https://i.postimg.cc/2yzk1Kbg/jermafan.gif" hspace="1">
   <img src="https://i.postimg.cc/k4NMXm44/youredead.webp" hspace="1">
