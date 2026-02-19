@@ -1,32 +1,32 @@
-<p align="center">
-  <img src="https://i.postimg.cc/qM3pyz4M/pony-town-auxiliatricksint-trot-blinking-fixed-padded-2x-ezgif-com-crop(1).gif)">
-<img src="https://i.postimg.cc/pVhLP0hb/pony-town-solluxhalf-dead-trot-blinking-fixed-padded-2x-ezgif-com-crop.gif">
-<img src="https://i.postimg.cc/DfJw7CJm/pony-town-Callieu-trot-blinking-fixed-padded-2x-ezgif-com-crop.gif">
-<img src="https://i.postimg.cc/pVhLP0hX/pony-town-DAVEPETA-fly-blush-blinking-fixed-padded-2x-ezgif-com-crop.gif">
-<img src="https://i.postimg.cc/h4ztKCzX/pony-town-Meulin-trot-hearts-blinking-fixed-padded-toy446-2x-ezgif-com-crop.gif">
-<img src="https://i.postimg.cc/8PLWzkJV/pony-town-Eclectica-trot-blinking-fixed-padded-toy342-2x-ezgif-com-crop.gif">
-<img src="https://i.postimg.cc/kM6g7j64/pony-town-Scene-Sollux-trot-blinking-fixed-padded-ponyplush-2x-ezgif-com-crop.gif">
-<img src=https://i.postimg.cc/W12DpGc0/pony-town-horsegirl-offtab-trot-blinking-fixed-padded-2x-ezgif-com-crop.gif">
+ ![1000008117](https://github.com/user-attachments/assets/244defe6-d8e5-4f3f-b629-f20a5059b06a)
+![1000006319](https://github.com/user-attachments/assets/59ddfaf7-980c-43af-8a2f-64b890d6c87f)
+
+
+
 </p>
 <h4 align="center">
-✩‧₊˚─────⋆⋅☆⋅⋆─────˚₊‧✩
+ׅ໒    ࿁⠀⠀ㅤ  ིྀ  ⠀⠀ ׅ  ㅤㅤㅤꛁ⑅ꛁ ㅤ⠀⠀ ׅ  ⠀⠀  ིྀ ⠀⠀࿁ 
 </h4>
 <p align="center">
-hi im minto, i like mint green. B] <br>
-not a system. 20 years old. big into homestuck. im always roleplaying in-character, because its fun! <br>
-c+h & int welcome, pony name preferred. <br>  
-  ive collected a bunch of stickers now yippee!
+hi im Ben, natalan or henry, i like chocolate mint. :B <br>
+13 years old. big forsaken/mm12. Please do not insist on roleplaying. <br>
+c*h is welcome, pony name preferred please. <br>  
+  Let's not talk about it romantically, since I already have a partner and I insist I love him very much. 
 </p>
 <h4 align="center">
- ✩‧₊˚─────⋆⋅☆⋅⋆─────˚₊‧✩
+ 𐔌 . ͏ 𑜞᭄ೃㅤㅤ⁺ ︵֔⏜۠͡︵ ♡ᩙུ ︵۠͡⏜֔︵ ⁺
 </h4>
+)
+
+
 
 <p align="center">
   <img src="https://i.postimg.cc/y8GwMbVV/nyanstamp.gif">
 </p>
 
 <p align="center">
-<a href="https://www.tumblr.com/aradidnt/765474656608272384/yesssssssssss?source=share"><img width="99" height="56" src="https://i.postimg.cc/C5DcyYgM/davesolkatstamp.jpg" hspace="1"></a>
+<a href="https://www.tumblr.com/aradidnt/765474656608272384/yesssssssssss?source=share"><img width="99" height="56" src="https://i.postimg.cc/C5DcyYgM/d![1000006129](https://github.com/user-attachments/assets/5c9226a5-5c34-4c8a-bced-aa717dbe3aa0)
+avesolkatstamp.jpg" hspace="1"></a>
 <img width="99" height="56" src="https://i.postimg.cc/13XkYQ1Y/1sth1syou.png" hspace="1">
 <img width="99" height="56" src="https://i.postimg.cc/T2qvK0cW/auspisticism.gif" hspace="1">
 <img width="99" height="56" src="https://i.postimg.cc/mg6sbryq/ilovemyqpp.png" hspace="1">
